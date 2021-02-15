@@ -3,19 +3,8 @@ practice deep learning
 
 
 
-# 
-
-
-
-# 
-
-
-
-# 
-
-
-
-# 
+# What I Learned
+https://123okk2.tistory.com/116?category=964823
 
 
 # References
