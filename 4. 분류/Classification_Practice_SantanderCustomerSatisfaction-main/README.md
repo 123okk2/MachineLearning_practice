@@ -4,19 +4,8 @@ practice classification
 
 
 
-# 
-
-
-
-# 
-
-
-
-# 
-
-
-
-# 
+# What I Learned
+https://123okk2.tistory.com/130?category=964823
 
 
 # References
